@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @axevenor
+- 👀 I’m interested in moneyz
+- 🌱 I’m currently learning to meme
+- 💞️ I’m looking to collaborate on DeFi
+- 📫 How to reach me: twitter.com/axevenor
